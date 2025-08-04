@@ -6,4 +6,4 @@ Fluxograma : https://github.com/user-attachments/assets/0b02f099-deb3-4de8-9524-
 
 Capa e Introdução: https://github.com/user-attachments/files/19633796/TCC.1.2.1.docx 
 
-
+Arquivo Bragantec: https://docs.google.com/document/d/1YGDYxJSKEjR2evH0pnIyxLo2qRzRcUYARTSS534vlbY/edit?usp=sharing"
